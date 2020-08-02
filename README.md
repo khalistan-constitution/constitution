@@ -1,2 +1,3 @@
-# constitution
-An Open Source Constitution Development Project For The Country Of Khalistan
+# The Khalistan Constitution Project
+
+An Open Source Constitution Development Project For The Country Of Khalistan.
