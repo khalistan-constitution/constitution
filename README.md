@@ -1,3 +1,9 @@
+## The Khalistan Constitution Project
+An Open Source Project To Develop A Constitution For A Country Called Khalistan.
+
+***
+
+
 ## Introduction
 This is an open source project to develop a model constitution for a country to be called Khalistan.
 ## Contributing To The Constitution
