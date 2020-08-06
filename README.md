@@ -31,14 +31,13 @@ Khalistan is the traditional homeland of the Sikhs and people who speak the Punj
 
 The Punjabis and The Sikhs are a people with the following distinguishing features:
 
-Punjabis, have resided in the Punjab region of Northern India since at least 2,000 B.C.
-Punjabi is the 10th most prevalent language in the world.
-Sikhism is the fifth largest religion in the world. Sikhism is the dominant religion in the Punjab.
-Punjabis have their own distinct language and script.
-Punjabis have a distinctive culture and customs.
-Sikhs are easily recognizable due to their unique appearance.
-There are 30 million Sikhs in India and 5 to 7 million Sikhs living outside India.
-
+- Punjabis, have resided in the Punjab region of Northern India since at least 2,000 B.C.
+- Punjabi is the 10th most prevalent language in the world.
+- Sikhism is the fifth largest religion in the world. Sikhism is the dominant religion in the Punjab.
+- Punjabis have their own distinct language and script.
+- Punjabis have a distinctive culture and customs.
+- Sikhs are easily recognizable due to their unique appearance.
+- There are 30 million Sikhs in India and 5 to 7 million Sikhs living outside India.
 
 
 ## A Short History Of Khalistan
