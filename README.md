@@ -52,13 +52,13 @@ On April 13, 1699, Guru Gobind Singh established the Khalsa as an armed Sikh Mil
 
 ### Sikh Nation Established
 
-In 1708, Guru Gobind Singh started on a journey to parley with the Mughul Emperor in the Deccan (on the latter's invitation). While in the jungles of Nandehr, the Guru met a reclusive hermit named Lachman Das. The Guru baptized Lachman Das into the Sikh faith and gave him the name *Banda Bahadur*. The Guru then provided the hermit with five arrows from his scabbard and five Sikhs and instructed him to travel nearly 1000 kilometers northward to The Punjab to confront the Empire and establish Sikh Rule. Guru Gobind Singh was assasinated a short time thereafter and the Moghul Emperer also passed away. 
+In 1708, Guru Gobind Singh started on a journey to parley with the Mughul Emperor in the Deccan (on the latter's invitation). While in the jungles of Nandehr, the Guru met a reclusive hermit named Lachman Das. The Guru baptized Lachman Das into the Sikh faith and gave him the name **Banda Bahadur**. The Guru then provided the hermit with five arrows from his scabbard and five Sikhs and instructed him to travel nearly 1000 kilometers northward to The Punjab to confront the Empire and establish Sikh Rule. Guru Gobind Singh was assasinated a short time thereafter and the Moghul Emperer also passed away. 
 
-Banda Bahadur established a  Sikh Nation as a commonwealth (there was no King) and coinage struck. This nation lasted from 1709 to 1715. In 1715, Banda Bahadur and his army were captured after a nine month siege.  Banda Bahadur and his infant son were tortured to death in public (** European eye witness accounts are available.**) and many Sikhs were summarily executed.
+Banda Bahadur established a  Sikh Nation as a commonwealth (there was no King) and coinage struck. This nation lasted from 1709 to 1715. In 1715, Banda Bahadur and his army were captured after a nine month siege.  Banda Bahadur and his infant son were tortured to death in public (* European eye witness accounts are available.*) and many Sikhs were summarily executed.
 
-As the Sikh resistance against the Mughal Empire gained ground and the Mughal persecution of the Sikhs intensified, the entire Sikh nation was divided into two standing armies: * The Army of The Elders*  (Budha Dal) and the * Army Of The Young * (Taruna Dal).
+As the Sikh resistance against the Mughal Empire gained ground and the Mughal persecution of the Sikhs intensified, the entire Sikh nation was divided into two standing armies: **The Army of The Elders**  (Budha Dal) and the **Army Of The Young** (Taruna Dal).
  
-The two standing armies constituting the entire Sikh nation devolved in time into heavily armed militias called *Misls*. From 1699 to 1775, the Sikh Misls confronted the Mughal Empire and the Sikhs ruled portions of the Punjab intermittently during this period.
+The two standing armies constituting the entire Sikh nation devolved in time into heavily armed militias called **Misls**. From 1720 to 1790, the Sikh Misls confronted the Mughal Empire and the Sikhs ruled portions of the Punjab intermittently during this period.
 
 ### The First Extermination
 
@@ -72,32 +72,35 @@ The first extermination lasted from 1739 to 1746.
 
 A second extermnination of the Sikhs began in 1756 and lasted until 1762. The extermination process was eventually crushed by the Sikh Misls and Nawab Kapoor Singh in particular. 
 
-(* Mythology? (): The exterminations had reduced the Sikh Nation into about fifty to sixty thousand individuals living in the jungles of the Punjab. Then at a non-descript place in District Ropar in the Punjab in 1778, the tide turned in a small skirmish between The Sikhs and the Mughul Empire. Thereafter The Sikhs would not lose a battle until they confronted the English army some seventy five years later.
+(*Mythology?*): The exterminations had reduced the Sikh Nation into about fifty to sixty thousand individuals living in the jungles of the Punjab. Then at a non-descript place in District Ropar in the Punjab in 1778, the tide turned. There was a small skirmish between The Sikhs and a column of soldiers of the Mughul Empire. Thereafter The Sikhs would not lose a battle until they confronted the English army some seventy five years later.
 
 ### A Boy Comes Onto The Scene
-In 1791 a young boy named Ranjit Singh, hideously disfigured by smallpox and blind in one eye emerges to lead the Sukerchakia Misl, fighting his first battle at the age of 12. He tells his mother: "don't fret mother, I will establish Sikh Rule."
 
-By 1799, the Sikh Misls having defeated the Mughal Empire, united under Ranjit Singh to form the Sikh Empire. This empire included most of Northern India, Pakistan, Kashmir, Ladakh, Tibet and portions of Afganistan. The Sikh Empire had remarkable characteristics with very advanced notions of social justice and political organization. This was an ariculation of the Sikh religion. You can read about these features here: [url here](url here)
+In 1791 a young boy named Ranjit Singh, hideously disfigured by smallpox and blind in one eye emerged to lead the Sukerchakia Misl, fighting his first battle at the age of 12. He told his mother: *"don't fret mother, I will establish Sikh Rule"*.
 
-By 1812 the British Empire had reached Delhi which was the southern border of the Sikh Empire. Since the Sikh Empire had a fearsome army with French and German Generals (and had for exmple, casted the largest cannon in the world), the British decided to bide their time waiting for the Sikh Empire to grow weak. 
+By 1799, the Sikh Misls having defeated the Mughal Empire, united under Ranjit Singh to form the Sikh Empire. It's name was **Sarkar-E-Khalsa-Jio** (**The Government Of The Khalsa, Beloved**). At its zenith, the empire included most of Northern India, Pakistan, Kashmir, Ladakh, Tibet and portions of Afganistan. Sarkar-E-Khalsa Jio was not strictly an autocracy. It had remarkable characteristics with very advanced notions of social justice and political organization. This was an articulation of principles eninciated in the Sikh religion. You can read about these features here: [url here](url here)
+
+By 1812 the British Empire had reached Delhi which was the southern border of the Sikh Empire. Since the Sikh Empire had a fearsome army with French and German Generals,  the British decided to bide their time waiting for the Sikh Empire to grow weak. In 1812 the Sikhs cast the biggest cannon in the world. 
 
 ### Anglo-Sikh Wars
 
 In 1845 the Sikh Emperor died and the first Anglo-Sikh war between the Sikhs and the English Empire broke out and the Sikhs defeated the English army. This war lasted from 1845 to 1846.
 
-In 1848 a brutal civil war broke out challenging the right of the Empress Jind Kaur to head the Sikh Empire. It was a palace plot hatched by Hindu (high caste) Dogra courtiers and the English. The British then approached Jind Kaur promising to safe guard her eldest son Duleep Singh until she quelled the on-going civil war. 
+In 1848 a brutal civil war broke out challenging the right of the **Empress Jind Kaur** to head the Sikh Empire. It was a palace plot hatched by treacherous Hindu high caste Dogra courtiers and the English. The British then approached Jind Kaur promising to safe guard her eldest son Duleep Singh until she quelled the on-going civil war. 
 
-The English then attacked the Sikh Empire and the second Anglo-Sikh war ensued. At the last battle at Sabroan in 1849 (now in Pakistan). 90,000 Sikhs faced a 110,000 strong English army. The Sikhs lost the battle and their empire. General Sardar Sham Singh Attari, aged over seventy years was leading the Sikhs, he had sworn to not come back from the battle alive if the Sikhs lost at Sabroan. He died on the battlefield. His wife who was in her castle some three hundred miles away, heard persistent rumors that the Sikhs had lost the battle. She threw herself on her own funeral pyre. The English impressed by the bravery of General Sham Singh Attari, permitted his personal retainer to take the body of the slain general back to his home for a proper funeral. The retainer arrived a few days later to find that Sham Singh Attari's wife had thrown herself on her own funeral pyre. The treacherous Hindu Dogras proceeded to exterminate Empress Jind Kaur's bloodline. Three year old Prince Kharak Singh was killed by smashing his head in with a large stone. Prince Duleep Singh was taken to England and converted into a Christian. He never returned to the Punjab. Empress Jind Kaur was taken to Burma (now Myanmaar) and kept imprisoned in Rangoon for the rest of her natural life.
+The English then attacked the Sikh Empire and the second Anglo-Sikh war ensued. At the last battle at Sabraon in 1849 (now in Pakistan). 90,000 Sikhs faced a 110,000 strong English army. The Sikhs lost the battle and their empire. General Sardar Sham Singh Attari, aged over seventy years was leading the Sikhs, he had sworn to not come back from the battle alive if the Sikhs lost at Sabroan. He died on the battlefield. His wife who was in her castle some three hundred miles away, heard persistent rumors that the Sikhs had lost the battle. She threw herself on her own funeral pyre. The English impressed by the bravery of **General Sham Singh Attari**, permitted his personal retainer to take the body of the slain general back to his home for a proper funeral. The retainer arrived a few days later to find that Sham Singh Attari's wife had thrown herself on her own funeral pyre. The treacherous Hindu Dogras proceeded to exterminate Empress Jind Kaur's bloodline. Three year old Prince Kharak Singh was killed by smashing his head in with a large stone. 
+
+Prince Duleep Singh was taken to England and converted into a Christian. He never returned to the Punjab. Empress Jind Kaur was taken to Burma (now Myanmaar) and kept imprisoned in Rangoon for the rest of her natural life.
 
 And it was in this manner that the very great and wonderous Sikh Empire was lost.
 
-### Betrayal Of The Sikh Nation
+### Betrayal And Annexation Of The Sikh Nation
 
 In 1948, India gained independence and the Punjab was absorbed into the newly formed state. The Sikhs refused to sign onto the constitution and the Punjab was annexed into India on the basis of false promises and constitutional guarantees that were never implemented. The Sikhs constituted 38 per cent of the British India Army and made the fatal mistake of not wresting control of Khalistan by force of arms.
 
-There has been continuous unrest and agitation in the Punjab since 1948. The constitution of India refused to recognize Sikhism as a seperate religion and the Sikhs as a seperate people. In 1952 legislation was passed declaring Sikhs to be a criminal tribe.
+There has been continuous unrest and agitation in the Punjab since 1948. The constitution of India refused to recognize Sikhism as a seperate religion and the Sikhs as a seperate people. In 1952 legislation was passed declaring Sikhs to be a **criminal tribe**.
 
-In 1984, the Government of India launched a well planned genocide which resulted in the mass murder of 200,000 to 300,000 Sikhs. India has never permitted an independent, international investigation of this genocide. At present an ethnic cleansing campaign is underway in the Punjab targeting the Sikh religion and culture. The ultimate objective is to destroy the Sikh religion and culture and render Sikhs a small minority in the Punjab region as the area is flooded by 'foreign' Indian people who speak a different language and have a different religion and customs. The same fate has been ordained for Kashmir. 
+In 1984, the Government of India launched a **well planned genocide** which resulted in the mass murder of 200,000 to 300,000 Sikhs. India has never permitted an independent, international investigation of this genocide. At present an ethnic cleansing campaign is underway in the Punjab targeting the Sikh religion and culture. The ultimate objective is to destroy the Sikh religion and culture and render Sikhs a small minority in the Punjab region as the area is flooded by 'foreign' Indian people who speak a different language and have a different religion and customs. The same fate has been ordained for Kashmir. 
 
 A brief but more complete chronology is available here [url](url) 
 
