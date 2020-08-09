@@ -13,6 +13,11 @@ Since this an open source project, anyone can contribute to this project. Our ob
 
 Since the creation of the United Nations in 1945 over thirty countries have been formed through a referendum process. This referendum based country creation process is bound to increase in importance in the future as the devolution of political and social rights devolves downwards to people at large. By creating an open source constitution for Khalistan, it is our hope that this constitution will also serve as a model and reference point for all of the new countries that will emerge in the future.
 
+It does not cost anything to participate in this project. The wiki provides you with information on how to do this:
+
+[how to contribute to the khalistan constitution project](https://github.com/khalistan-constitution/constitution/wiki) 
+
+
 ## What Is In It For You?
 
 If you make a pull request that is accepted into the master branch of the constitution as an article of the constitution or as a substantial addition or modification of an existing article, then you will be entitled as a constitutional right to automatic citizenship in Khalistan irrespective of caste, color or creed.
