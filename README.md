@@ -28,7 +28,7 @@ If you make a pull request that is accepted into the master branch of the consti
  
 The articles of the United Nations provide that a referendum is a lawful way to create a country, providing that the referendum expresses the will of the people. As a member of the United Nations, India has agreed to this provision, which is a condition for it's membership in the UN.
 
-The principle of self-determination is prominently embodied in **Article 1 of the Charter Of The United Nations**. It is also posiitioned as the first right  in the **International Covenant Of Civil And Political Rights (ICCPR)** and the **International Covenant On Economic, Social And Cultural Rights (ICECR)**. 
+The principle of self-determination is prominently embodied in **Article 1 of the Charter Of The United Nations**. It is also posiitioned as the first right  in the **International Covenant On Civil And Political Rights (ICCPR) ** and the **International Covenant On Economic, Social And Cultural Rights (ICECR)**. 
 
 At present, a worldwide campaign for a referendum on Khalistan is underway. There is a significant Sikh diaspora. The first portion of this campaign entails voter registration. There is significant extra-judicial and state sanctioned violent opposition to this referendum from the Government of India.
  
@@ -109,5 +109,5 @@ There has been continuous unrest and agitation in the Punjab since 1948. The con
 
 In 1984, the Government of India launched a **well planned genocide** which resulted in the mass murder of 200,000 to 300,000 Sikhs. India has never permitted an independent, international investigation of this genocide. At present an ethnic cleansing campaign is underway in the Punjab targeting the Sikh religion and culture. The ultimate objective is to destroy the Sikh religion and culture and render Sikhs a small minority in their traditional homeland as the area is flooded by 'foreign' Indian people who speak a different language and have a different religion and customs. The same fate has been ordained for Kashmir. 
 
-A brief but more complete chronology is available here [url](url) 
+More information about this project is available here: [Khalistan Constitution Wiki](https://github.com/khalistan-constitution/constitution/wiki)  
 
