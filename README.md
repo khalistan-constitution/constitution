@@ -28,6 +28,8 @@ If you make a pull request that is accepted into the master branch of the consti
  
 The articles of the United Nations provide that a referendum is a lawful way to create a country, providing that the referendum expresses the will of the people. As a member of the United Nations, India has agreed to this provision, which is a condition for it's membership in the UN.
 
+The principle of self-determination is prominently embodied in **Article 1 of the Charter Of The United Nations**. It is also posiitioned as the first right  in the **International Covenant Of Civil And Political Rights (ICCPR)** and the **International Covenant On Economic, Social And Cultural Rights (ICECR)**. 
+
 At present, a worldwide campaign for a referendum on Khalistan is underway. There is a significant Sikh diaspora. The first portion of this campaign entails voter registration. There is significant extra-judicial and state sanctioned violent opposition to this referendum from the Government of India.
  
 ## So What Is Khalistan Anyways?
